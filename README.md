@@ -1,1 +1,1 @@
-# sem_zima_cw1
+Damian Goraj, internetowe, s18085
